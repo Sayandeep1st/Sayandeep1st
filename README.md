@@ -4,6 +4,7 @@
 - 📫 How to reach me **sayandeeparpita123@gmail.com**
 
 - ⚡ Fun fact **I love Mathematics and Physics**
+- 📫 Currently studying- **HEM SHEELA MODEL SCHOOL**
 
 
 
